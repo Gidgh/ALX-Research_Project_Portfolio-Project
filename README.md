@@ -1,2 +1,2 @@
 # Great to have you here!
-https://docs.google.com/document/d/19s44sZbck4mRlxf0U59ssrqyFq6VeIQCJFi8iHhmgb4/edit?usp=sharing
+<img width="446" alt="The maze game lp jpeg" src="https://github.com/Gidgh/ALX-Research_Project_Portfolio-Project/assets/117759953/915ace03-b989-4b9c-9d96-32fba8587002">
